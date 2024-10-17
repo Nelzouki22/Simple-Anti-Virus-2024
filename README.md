@@ -24,6 +24,9 @@ For more information about the project or to get in touch, please reach out via:
 
 Email: elzoukigroup2018@gmail.com
 LinkedIn: [Nadir Elzouki](https://www.linkedin.com/in/nadir-elzouki-40679a1a9/)
+
 YouTube: [Nadir Elzouki](https://www.youtube.com/@nadirelzouki4529)
+
 GitHub: Nelzouki22
+
 YouTube Project Overview: [ntivAirus Project Video](https://youtu.be/mCEiJbHbBJo)
